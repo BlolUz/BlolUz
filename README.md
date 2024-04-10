@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @BlolUz
+- 👀 I’m interested in write code
+- 🌱 I’m currently learning Engilish
+- 💞️ I’m looking to collaborate on ...
+- 😄 Pronouns: ☕
+- ⚡ Fun fact: All we have is now 
